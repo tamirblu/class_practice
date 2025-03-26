@@ -2,4 +2,3 @@
 
 Tamir here!
 
-Tamir left!
